@@ -1,5 +1,3 @@
-# Usman Adesina
-
 
 ---
 
